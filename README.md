@@ -1,1 +1,4 @@
-# Env-Hosting-Panel-v1.0
+Gamehoster.biz-leaked
+ADMIN LOGIN
+
+Root:bilijar2
